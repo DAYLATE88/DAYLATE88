@@ -1,4 +1,1 @@
-can only imagine 
-cannot fantom
-eyes can see 👀 😴 
-
+not thirsty or hungry or bored ignored 🙃 
