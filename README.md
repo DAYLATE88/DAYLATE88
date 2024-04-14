@@ -1,1 +1,1 @@
-not thirsty or hungry or bored ignored 🙃 
+honest friend value 0 priceless 
